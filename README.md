@@ -17,3 +17,4 @@
 Enough about me, if I ever have FAQs about me (which I highly doubt) they'll be here!
 
 ![syfwI9CDA6BIWyau](https://github.com/ejosiah1/ejosiah1/assets/158645596/2904a025-f336-4b48-83b1-41e6d54b035a)
+### SAYONARA!
