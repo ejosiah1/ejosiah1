@@ -12,6 +12,7 @@
   - 🍾 My fav beverage is lemonade
 - 🌞 Call me crazy but I love summer and everything about it
 - - I can't swim, but love the pool and the beach
+
 -🎼 I love most music
 
 Enough about me, if I ever have FAQs about me (which I highly doubt) they'll be here!
